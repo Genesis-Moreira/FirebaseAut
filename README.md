@@ -1,0 +1,11 @@
+## GRUPO 2
+### CHAVEZ ALAVA DAYRA JOMARA
+### ESTRADA TAPIA JECSON STALIN
+### MACIAS QUIROZ JUSTIN IVAN
+### MOREIRA CABEZAS GENESIS JOMARY
+### ROMO LOPEZ BRYAN ANDRES
+### ORMAZA MONTESDEOCA YUMEIDA STEFANIE
+
+
+![imagen](https://github.com/user-attachments/assets/bc77b8b6-8577-410e-915f-d2b471e60f6d)
+![imagen](https://github.com/user-attachments/assets/33c9e396-7032-4e3e-aab5-3528519c3210)
